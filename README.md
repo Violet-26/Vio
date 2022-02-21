@@ -1,3 +1,0 @@
-- 👋 Hi, I’m @eggysalami
-- 💞️ I’m currently working on nothing
-- 📫 ask me questions if u want 
